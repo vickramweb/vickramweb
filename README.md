@@ -32,6 +32,6 @@ Continuous learning and developing scalable solutions
 
 📫 **Connect with Me**
 
-**LinkedIn:** linkedin.com/in/vickram-arunkumar-07235522a
+**LinkedIn:**  www.linkedin.com/in/vickram-arunkumar-07235522a
 
 **Email:** vickyvickram424@gmail.com
